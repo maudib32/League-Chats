@@ -1,46 +1,46 @@
 # League-Chats
-Malcolm Reanolds joined the room.
-Tardagain joined the room.
-Rikochette joined the room.
-StealthMaster33 joined the room.
-BPain joined the room.
-lucefuri joined the room.
-Ichadra joined the room.
-Animezz joined the room.
-mycroutons4you joined the room.
-Masayoshi Honda joined the room.
-Malcolm Reanolds: gg
-Masayoshi Honda: gg
-mycroutons4you left the room.
-BPain: report zed
-Animezz left the room.
-Tardagain left the room.
-lucefuri: for what?
-Masayoshi Honda: ?
-BPain: for being a dbag
-lucefuri: asking you to not take all my cs?
-StealthMaster33: he wouldn't shut up
-lucefuri: how is that
-lucefuri: a dbag?
-Malcolm Reanolds: Douchebag
-Ichadra left the room.
-Masayoshi Honda: he was toxiv?
-lucefuri: what if i came in to your ungle an?d took your bluebuff
-Malcolm Reanolds: ya know that bag of liquid women use to clean their vajayjay
-lucefuri: the voli was being a dick
-Malcolm Reanolds: haha
-lucefuri: he came to my lane
-StealthMaster33: voli was feeding him a free lane and he complained
-Malcolm Reanolds: i'm sorry sir but you were
-lucefuri: took kills
-lucefuri: and then took my farm
-BPain left the room.
-lucefuri: THATS a dick move
-Masayoshi Honda: Zed voli gave you a free lane
-Malcolm Reanolds: haha
-StealthMaster33: that's called being a bear
-lucefuri: i was doing fine
-Masayoshi Honda: I dunno
+Malcolm Reanolds joined the room.<br>
+Tardagain joined the room.<br>
+Rikochette joined the room.<br>
+StealthMaster33 joined the room.<br>
+BPain joined the room.<br>
+lucefuri joined the room.<br>
+Ichadra joined the room.<br>
+Animezz joined the room.<br>
+mycroutons4you joined the room.<br>
+Masayoshi Honda joined the room.<br>
+Malcolm Reanolds: gg<br>
+Masayoshi Honda: gg<br>
+mycroutons4you left the room.<br>
+BPain: report zed<br>
+Animezz left the room.<br>
+Tardagain left the room.<br>
+lucefuri: for what?<br>
+Masayoshi Honda: ?<br>
+BPain: for being a dbag<br>
+lucefuri: asking you to not take all my cs?<br>
+StealthMaster33: he wouldn't shut up<br>
+lucefuri: how is that<br><br>
+lucefuri: a dbag?<br>
+Malcolm Reanolds: Douchebag<br>
+Ichadra left the room.<br>
+Masayoshi Honda: he was toxiv?<br>
+lucefuri: what if i came in to your ungle an?d took your bluebuff<br>
+Malcolm Reanolds: ya know that bag of liquid women use to clean their vajayjay<br>
+lucefuri: the voli was being a dick<br>
+Malcolm Reanolds: haha<br>
+lucefuri: he came to my lane<br>
+StealthMaster33: voli was feeding him a free lane and he complained<br>
+Malcolm Reanolds: i'm sorry sir but you were<br>
+lucefuri: took kills<br>
+lucefuri: and then took my farm<br>
+BPain left the room.<br>
+lucefuri: THATS a dick move<br>
+Masayoshi Honda: Zed voli gave you a free lane<br>
+Malcolm Reanolds: haha<br>
+StealthMaster33: that's called being a bear<br>
+lucefuri: i was doing fine<br>
+Masayoshi Honda: I dunno<br>
 Masayoshi Honda: lol
 lucefuri: bullshit
 Masayoshi Honda: if it wasnt for boli
